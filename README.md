@@ -1,2 +1,2 @@
 # Abdullah Seyitcan Uçar 211216019    
-# Mustafa Bilgiç 
+# Mustafa Bilgiç 211216088
